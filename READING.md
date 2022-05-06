@@ -1,1 +1,1 @@
-# No Skill, Practice More.
+# Practice More, No Skill.
