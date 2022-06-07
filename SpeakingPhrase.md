@@ -21,3 +21,8 @@
 
 ### 6:go / be through thick and thin together
 * The Chinese people should unite as closely as brothers, go through thick and thin together, stick together in life and death and fight to the end to defeat their common enemy. 
+
+
+### 7: As xxxx to , so xxx to（正如xxx对xxx一样，至于xxx对xxx一样）
+* As food is to the body, so is learning to the mind. --->食物之于身体，学习之于心灵。
+
