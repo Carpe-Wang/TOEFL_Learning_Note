@@ -16,7 +16,7 @@
 * you have a goal there and then focus all your attention on it.
 
 ### 5: In the process of && struggling for it
-* in the process of struggling for sth.
+* in the process of struggling for sth.(在为某事奋斗的过程中。)
 
 
 ### 6:go / be through thick and thin together
