@@ -12,5 +12,5 @@
 * for me, the success means fulfilling one's dream .
 * I had fulfilling summer vacation.
 
-### 4: focus all your attention on it 
+### 4: focus all your attention on it == spare no effort to do sth
 * you have a goal there and then focus all your attention on it.
