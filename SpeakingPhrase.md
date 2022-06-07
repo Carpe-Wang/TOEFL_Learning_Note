@@ -14,3 +14,10 @@
 
 ### 4: focus all your attention on it == spare no effort to do sth
 * you have a goal there and then focus all your attention on it.
+
+### 5: In the process of && struggling for it
+* in the process of struggling for sth.
+
+
+### 6:go / be through thick and thin together
+* The Chinese people should unite as closely as brothers, go through thick and thin together, stick together in life and death and fight to the end to defeat their common enemy. 
