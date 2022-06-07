@@ -5,3 +5,4 @@
 #### 5:diligent 孜孜不倦的;勤勉的;刻苦的
 #### 6:inflation  通货膨胀;通胀率;充气
 #### 7:An  eye  for  an  eye 以牙还牙
+#### 8:stagflation 滞胀
