@@ -6,3 +6,4 @@
 #### 6:inflation  通货膨胀;通胀率;充气
 #### 7:An  eye  for  an  eye 以牙还牙
 #### 8:stagflation 滞胀
+#### 9:explicit 明确的; 清楚明白的; 易于理解的
