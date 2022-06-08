@@ -26,3 +26,5 @@
 ### 7: As xxx to , so xxx to（正如xxx对xxx一样，至于xxx对xxx一样）
 * As food is to the body, so is learning to the mind. --->食物之于身体，学习之于心灵。
 
+### 8:keep pace with the times(与时俱进)
+* Continuous learning is the best way to keep pace with the time.
