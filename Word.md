@@ -8,3 +8,8 @@
 #### 8:stagflation 滞胀
 #### 9:explicit 明确的; 清楚明白的; 易于理解的
 #### 10:dilute 稀释
+#### 11:tumble 跌倒
+#### 12:magnitude 巨大，重大
+#### 13:antiquity 古老。  the museum contains the remains of Chinese antiquity.
+#### 14:rudimentary 最初的，基本的，基础的。注意比较级是more
+#### 15:precursor 前身，先驱。
